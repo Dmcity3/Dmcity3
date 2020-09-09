@@ -15,3 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 大家好，我叫郑思洁，来自福州，很高兴认识各位。希望未来能与大家达成友好的合作
+也希望能通过自己努力充实并丰富自己。与各位共勉。
